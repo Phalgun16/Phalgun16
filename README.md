@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate to work on projects related to data collecting, assessing, cleaning, analyzing and presentation.
 - 📫 How to reach me - gmail: ponnannapvt@gmail.com linkedIN:https://www.linkedin.com/in/ponnanna-cp/
 - 😄 Pronouns: He/Him
-- ⚡ I'll do it afraid.
+- ⚡ Perseverance.
 
 <!---
 Phalgun16/Phalgun16 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
